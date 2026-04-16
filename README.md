@@ -22,4 +22,11 @@
     
  ${\textsf{\color{#9e0d00}Sign my lovelys ata and straw }}$
 
- <img width="840" height="859" alt="image" src="https://github.com/user-attachments/assets/498581f2-d409-40af-9598-768a8ee30f52" />
+ 
+
+https://github.com/user-attachments/assets/3554a8a4-9f89-4146-87e8-8bd790a444e4
+
+
+
+
+
